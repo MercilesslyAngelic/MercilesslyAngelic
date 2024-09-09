@@ -6,7 +6,7 @@ $\color{#ffbfd3}{“~とめどなく溢れる~「会いたい」}$
 $\color{#ffbfd3}{気持ち~なんでだろうな~まだわかんないな~”}$ <br />
 $\color{#ffcbbf}{╭──────~·~·~୨୧~·~·~──────╮}$<br /> 
   <br />
-<a ref="https://youtu.be/4kJqVquBGv8?si=BblGbYyb2efnr01F"><img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60"> <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60"> <br />
 <p align="center">
 $\color{#ffcbbf}{╰──────~·~·~୨୧~·~·~──────╯}$<br />
 $\color{#ffbfd3}{“~明日も明後日もその先も}$<br />
